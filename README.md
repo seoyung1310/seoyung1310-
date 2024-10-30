@@ -1,5 +1,5 @@
-## BEM-VINDO A MEU PERFIL!👋😄
-Meu nome é Daniela De Jesus Medina Martínez😄
+## 𝙱𝙴𝙼-𝚅𝙸𝙽𝙳𝙾 𝙰 𝙼𝙴𝚄 𝙿𝙴𝚁𝙵𝙸𝙻!👋😄
+#### Meu nome é 𝕯𝖆𝖓𝖎𝖊𝖑𝖆 𝕯𝖊 𝕵𝖊𝖘𝖚𝖘 𝕸𝖊𝖉𝖎𝖓𝖆 𝕸𝖆𝖗𝖙𝖎𝖓𝖊𝖟 😄
 
 - Sou estudante do Ensino Médio em Paraná 🤓
 - Estudo idiomas asiaticos, estou tendo conhecimentos de várias culturas e amo desenhar em dias livres
@@ -13,3 +13,11 @@ Meu nome é Daniela De Jesus Medina Martínez😄
  https://media.tenor.com/QLFDNb2aPRgAAAAM/bts-bts-hearts.gif
  https://media.tenor.com/M8xnc8DNR50AAAAM/jimina-dance-jimin-dance.gif
  https://media.tenor.com/zIvMtzX1iWwAAAAM/jimiin-jmnagb.gif
+## Entre em contato comigo 🤓👀
+## 👻 GMAIL:
+
+daniela.martinez@escola.pr.gov.br
+
+## Pode me seguir em:
+@jimin_park_sra_mochie
+
