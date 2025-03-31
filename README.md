@@ -10,14 +10,14 @@
 - algum esporte que quero praticar e apenas sou iniciante é em voleibol, já fui jogadora de futebol no meu país de origem🏐⚽️
 - tenho uma banda preferida musical e é o BTS, sendo meu utt o Park jimin🎼
 
- https://media.tenor.com/QLFDNb2aPRgAAAAM/bts-bts-hearts.gif
- https://media.tenor.com/M8xnc8DNR50AAAAM/jimina-dance-jimin-dance.gif
- https://media.tenor.com/zIvMtzX1iWwAAAAM/jimiin-jmnagb.gif
- https://media.tenor.com/_sxBE8ypGeEAAAAj/bt21-chimmy.gif
- https://media.tenor.com/6NcT5VAeeDgAAAAM/jimin-reupload.gif
- https://media.tenor.com/RRr9yqzY5B8AAAAM/jungkook-dawa.gif
- https://media.tenor.com/BKduLfEJKskAAAAj/k-pop-bts.gif
- https://media.tenor.com/4P34G4UBiTwAAAAM/jinmojv21-bts.gif
+ ![](https://media.tenor.com/QLFDNb2aPRgAAAAM/bts-bts-hearts.gif)
+ ![](https://media.tenor.com/M8xnc8DNR50AAAAM/jimina-dance-jimin-dance.gif)
+ ![](https://media.tenor.com/zIvMtzX1iWwAAAAM/jimiin-jmnagb.gif)
+ ![](https://media.tenor.com/_sxBE8ypGeEAAAAj/bt21-chimmy.gif)
+ ![](https://media.tenor.com/6NcT5VAeeDgAAAAM/jimin-reupload.gif)
+ ![](https://media.tenor.com/RRr9yqzY5B8AAAAM/jungkook-dawa.gif)
+ ![](https://media.tenor.com/BKduLfEJKskAAAAj/k-pop-bts.gif)
+ ![](https://media.tenor.com/4P34G4UBiTwAAAAM/jinmojv21-bts.gif)
 ## Entre em contato comigo 🤓👀
 ## 👻 GMAIL:
 
